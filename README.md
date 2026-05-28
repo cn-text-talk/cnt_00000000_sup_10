@@ -14,6 +14,7 @@
 <br>4.从现在起,你们外面反过来,[ARVR远距离]对:我体内的,副元神鬼魂,超大声播放(李洪志讲法,3X9讲法MP3)(时刻播放),用以精神赔偿。
 <br>$\textsf{\color{red   }{"↑↑↑↑↑"3.4.精神赔偿！！！"↑↑↑↑↑"}}$
 <br>
+<br>$\textsf{\color{red   }{同一条横线X,轮流用1-3个大喇叭.竖线Y也设置.变成一个:[大喇叭][长方形阵列XY].}}$
 <br>$\textsf{\color{red   }{李洪志讲法,3X9讲法MP3,济南大连广州：}}$
 <br>https://github.com/cn-text/cn-text.github.io/releases/tag/jiangfa_audio_video
 <br>
