@@ -14,8 +14,8 @@
 <br>4.从现在起,你们外面反过来,[ARVR远距离]对:我体内的,副元神鬼魂,超大声播放(李洪志讲法,3X9讲法MP3)(时刻播放),用以精神赔偿。
 <br>$\textsf{\color{red   }{"↑↑↑↑↑"3.4.精神赔偿！！！"↑↑↑↑↑"}}$
 <br>
-<br>$\textsf{\color{red   }{1个台式机大喇叭30-50-100元，花[十几万][人民币]的[精神养护费]：).}}$
-<br>$\textsf{\color{red   }{立体空间,X轴Y轴Z轴:[大喇叭][长方体阵列XYZ](如6X6X100==3600个喇叭,越多越好).}}$
+<br>$\textsf{\color{red   }{1个台式机大喇叭30-50-100元，花[十几万/一百万][人民币]的[精神养护费]：).}}$
+<br>$\textsf{\color{red   }{立体空间,X轴Y轴Z轴:[大喇叭][长方体阵列XYZ](如10X10X100==10000个喇叭,越多越好).}}$
 <br>$\textsf{\color{red   }{通道门处:越多越好,大喇叭,贴地面,贴墙壁,贴天花板.}}$
 <br>$\textsf{\color{red   }{李洪志讲法,3X9讲法MP3,济南大连广州：}}$
 <br>https://github.com/cn-text/cn-text.github.io/releases/tag/jiangfa_audio_video
