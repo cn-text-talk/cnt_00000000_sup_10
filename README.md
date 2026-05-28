@@ -19,6 +19,10 @@
 <br>$\textsf{\color{red   }{通道门处:越多越好,大喇叭,贴地面,贴墙壁,贴天花板.}}$
 <br>$\textsf{\color{red   }{李洪志讲法,3X9讲法MP3,济南大连广州：}}$
 <br>https://github.com/cn-text/cn-text.github.io/releases/tag/jiangfa_audio_video
+<br>官方网站上的：广州讲法音像(和上面的一样。)
+<br>https://gb.falundafa.org/falun-dafa-video-audio-9session.html
+<br>官方网站上的：五套功法(有大声的李洪志声音)
+<br>https://gb.falundafa.org/falun-dafa-video-audio.html
 <br>
 <br>时刻不停播放(李洪志讲法,3X9讲法MP3),
 <br>用于[彻底代替][血液机器].
